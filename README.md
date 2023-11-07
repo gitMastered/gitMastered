@@ -7,7 +7,7 @@ My goal is to simplify people's life with projects that I basically create for m
 Actually, I work quietly on some projects 👀. That I'm maybe gonna publish further in the year.
 
 # 2024
-Only 55 days reaming before 2024! 🙌
+Only 54 days reaming before 2024! 🙌
 
 Signature : README.md Successfully updated on Tue Nov 07 2023 by gitMasteredBot
 
